@@ -1,2 +1,2 @@
 # blooket-hacks
-Blooket Hacks - Thanks to glixzzy
+Blooket Hacks - Thanks to @glixzzy
